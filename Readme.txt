@@ -1,0 +1,1 @@
+The file is copyright by Sprite331 Inc.
